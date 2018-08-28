@@ -1,1 +1,1 @@
-# Tareas-Programacion-Plascencia-3oG
+# Tareas de 1a Parcial
